@@ -31,7 +31,7 @@
 
 9. **Nebula (2020)**  
    [Download Link 1](https://ia801608.us.archive.org/13/items/tere-liye-demi-kamu-mb/Tere%20Liye%20-%20Nebula.pdf)  
-   [Download Link 2](https://archive.org/details/NebulaByTereLiye)
+   [Download Link 2](https://e-pustaka.tanjabbarkab.go.id/opac/index.php?p=fstream-pdf&fid=560&bid=678)
 
 10. **Si Putih (2021)**  
     [Download Link](https://sfile.mobi/download/lsFaNcvz4k7?fid=bHNGYU5jdno0azcma2V5PUYxRDI1OUY0MzlBN0ZFMzc-)
