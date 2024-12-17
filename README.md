@@ -11,7 +11,7 @@
    <p align="center"><a href="https://archive.org/details/Bulan_201711" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 3. **Matahari (2016)**  
-   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2024/01/Cover_MATAHARI.jpg" width="200" height="300"></p>  
+   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2017/05/MATAHARI-BukuKetiga-dari-Novel-Bestseller-BUMI.jpg" width="200" height="300"></p>  
    <p align="center"><a href="https://sfile.mobi/download/1ctSzqkfAOc7?fid=MWN0U3pxa2ZBT2M3JmtleT1GMUQyNTlGNDM5QTdGRTM3" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 4. **Bintang (2017)**  
@@ -31,7 +31,7 @@
    <p align="center"><a href="https://archive.org/details/tereliyekometminor" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 8. **Selena (2020)**  
-   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2021/02/Selena.jpg" width="200" height="300"></p>  
+   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2021/06/Cover_Selena.jpg" width="200" height="300"></p>  
    <p align="center"><a href="https://archive.org/details/tere-liye-selena" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 9. **Nebula (2020)**  
