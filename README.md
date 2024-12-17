@@ -15,9 +15,8 @@
    [Download Link](https://archive.org/details/TereLiyeBintang)
 
 5. **Ceros dan Batozar (2018)**  
-   [Download Link 1](https://archive.org/details/EbookNovelCerosDanBatozarPdf)  
-   [Download Link 2](https://archive.org/details/DownladEbookNovelCerosdanBatozarPdf)
-
+   [Download Link](https://sfile.mobi/download/18UmiPOkFMs7?fid=MThVbWlQT2tGTXM3JmtleT1GMUQyNTlGNDM5QTdGRTM3)  
+   
 6. **Komet (2018)**  
    [Download Link 1](https://archive.org/details/DownloadEbookNovelKometPdf)  
    [Download Link 2](https://archive.org/details/tereliyekomet)
