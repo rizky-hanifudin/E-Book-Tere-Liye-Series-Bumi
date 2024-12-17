@@ -15,7 +15,7 @@
    <p align="center"><a href="https://sfile.mobi/download/1ctSzqkfAOc7?fid=MWN0U3pxa2ZBT2M3JmtleT1GMUQyNTlGNDM5QTdGRTM3" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 4. **Bintang (2017)**  
-   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2018/02/cover-BINTANG_TERE-LIYE.jpg" width="200" height="300"></p>  
+   <p align="center"><img src="https://image.gramedia.net/rs:fit:0:0/plain/https://cdn.gramedia.com/uploads/picture_meta/2023/4/10/ccmq4kges6gstnsrrtxabw.jpg" width="200" height="300"></p>  
    <p align="center"><a href="https://archive.org/details/TereLiyeBintang" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 5. **Ceros dan Batozar (2018)**  
@@ -23,11 +23,11 @@
    <p align="center"><a href="https://sfile.mobi/download/18UmiPOkFMs7?fid=MThVbWlQT2tGTXM3JmtleT1GMUQyNTlGNDM5QTdGRTM3" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 6. **Komet (2018)**  
-   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2024/01/Cover_KOMET.jpg" width="200" height="300"></p>  
+   <p align="center"><img src="https://image.gramedia.net/rs:fit:0:0/plain/https://cdn.gramedia.com/uploads/picture_meta/2023/9/20/dnvtkacwfcyq3ds5g9lpqq.jpg" width="200" height="300"></p>  
    <p align="center"><a href="https://archive.org/details/tereliyekomet" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 7. **Komet Minor (2019)**  
-   <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2023/07/Cover_KOMET_MINOR.jpg" width="200" height="300"></p>  
+   <p align="center"><img src="https://image.gramedia.net/rs:fit:0:0/plain/https://cdn.gramedia.com/uploads/picture_meta/2023/9/2/gtwhopbph3gdpjwku5ck9o.jpg" width="200" height="300"></p>  
    <p align="center"><a href="https://archive.org/details/tereliyekometminor" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 8. **Selena (2020)**  
@@ -54,7 +54,7 @@
     <p align="center"><a href="https://sfile.mobi/download/bH8LzmQil27?fid=Ykg4THptUWlsMjcma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link 2</button></a></p>
 
 13. **Sagaras (2022)**  
-    <p align="center"><img src="https://pustaka.mitranetra.or.id/wp-content/uploads/2023/07/Cover_Sagaras.jpg" width="200" height="300"></p>  
+    <p align="center"><img src="https://image.gramedia.net/rs:fit:0:0/plain/https://cdn.gramedia.com/uploads/items/sagaras.jpeg" width="200" height="300"></p>  
     <p align="center"><a href="https://sfile.mobi/download/5geI1jYOuIr?fid=NWdlSTFqWU91SXIma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 14. **Matahari Minor (2022)**  
@@ -62,5 +62,5 @@
     <p align="center"><a href="https://sfile.mobi/download/b6cK02ylKS7?fid=YjZjSzAyeWxLUzcma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 15. **Ily (2023)**  
-    <p align="center"><img src="https://bukuaudio.org/daisy/2024/05/_cover/Cover_Ily.jpg" width="200" height="300"></p>  
+    <p align="center"><img src="https://library.instiperjogja.ac.id/lib/minigalnano/createthumb.php?filename=images/docs/gfjryi75yrer5y7.jpg.jpg" width="200" height="300"></p>  
     <p align="center"><a href="https://sfile.mobi/download/9qK1n6ljq0n?fid=OXFLMW42bGpxMG4ma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link</button></a></p>
