@@ -62,5 +62,5 @@
     <p align="center"><a href="https://sfile.mobi/download/b6cK02ylKS7?fid=YjZjSzAyeWxLUzcma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link</button></a></p>
 
 15. **Ily (2023)**  
-    <p align="center"><img src="https://bukuaudio.org/daisy/2024/05/_cover/Cover_Ily.jpg" width="200" height="300"></p>  
+    <p align="center"><img src="https://library.instiperjogja.ac.id/lib/minigalnano/createthumb.php?filename=images/docs/gfjryi75yrer5y7.jpg.jpg&width=200" width="200" height="300"></p>  
     <p align="center"><a href="https://sfile.mobi/download/9qK1n6ljq0n?fid=OXFLMW42bGpxMG4ma2V5PUYxRDI1OUY0MzlBN0ZFMzc-" style="text-decoration:none;"><button>Download Link</button></a></p>
