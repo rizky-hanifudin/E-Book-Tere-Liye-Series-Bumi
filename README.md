@@ -18,16 +18,14 @@
    [Download Link](https://sfile.mobi/download/18UmiPOkFMs7?fid=MThVbWlQT2tGTXM3JmtleT1GMUQyNTlGNDM5QTdGRTM3)  
    
 6. **Komet (2018)**  
-   [Download Link 1](https://archive.org/details/DownloadEbookNovelKometPdf)  
-   [Download Link 2](https://archive.org/details/tereliyekomet)
+   [Download Link](https://archive.org/details/tereliyekomet)
 
 7. **Komet Minor (2019)**  
    [Download Link](https://archive.org/details/tereliyekometminor)
 
 8. **Selena (2020)**  
-   [Download Link 1](https://archive.org/details/tere-liye-selena)  
-   [Download Link 2](https://archive.org/details/SelenaByTereLiye)
-
+   [Download Link](https://archive.org/details/tere-liye-selena)  
+   
 9. **Nebula (2020)**  
    [Download Link 1](https://ia801608.us.archive.org/13/items/tere-liye-demi-kamu-mb/Tere%20Liye%20-%20Nebula.pdf)  
    [Download Link 2](https://e-pustaka.tanjabbarkab.go.id/opac/index.php?p=fstream-pdf&fid=560&bid=678)
